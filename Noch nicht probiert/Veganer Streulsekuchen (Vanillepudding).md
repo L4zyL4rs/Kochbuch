@@ -9,4 +9,6 @@ Für den Teig:
 - 100g vegane Butter (kalt)
 - 50ml Pflanzenmilch
 
-Für die vanille
+Für die Vanillepudding-Schicht:
+- 1 Päckchen Vanillepudding-pulver
+- 
