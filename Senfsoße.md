@@ -1,2 +1,2 @@
 - Senfkörner nehmen
-- Zu Soße verarbeiten
+- Zu Soße verarbeiten lol
