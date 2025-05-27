@@ -1,2 +1,2 @@
 - Senfkörner nehmen
-- Zu Soße 
+- Zu Soße verarbeiten
