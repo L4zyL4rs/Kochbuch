@@ -14,4 +14,4 @@ Gewürze:
 - Kreuzkümmel
 - Sumach
 
-Erst 
+Erst Tomatenmark mit Ajvar und Dill verrühren, dann Knoblauch hineinpressen. Dann Joghurt und restliche Gewürze (nicht zu wenig!) hinzugeben. Am besten noch einige Stunden ziehen lassen.
