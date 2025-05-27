@@ -26,4 +26,5 @@ Zubereitung:
 4. Den Boden mit einer Gabel mehrmals einstechen und bei 180°C Ober-/Unterhitze ca.10 min vorbacken.
 5. Pudding nach Anweisung kochen. Den Pudding etwas abkühlen lassen, dann auf den vorgebackenen Boden streichen.
 6. Zutaten für die Streusel kneten.
-7. Die streusel gleichmäßig auf der Puddingschischt verteilen. Den Kuchen für weitere 25-30 Minuten bei 180°C backen, bis die s
+7. Die streusel gleichmäßig auf der Puddingschischt verteilen. Den Kuchen für weitere 25-30 Minuten bei 180°C backen, bis die Streusel goldbraun sind.
+8. Den Kuchen vollständig auskühlen lassen und mit Puderzucker servieren.
