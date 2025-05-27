@@ -21,4 +21,5 @@ Für die Streusel:
 
 Zubereitung:
 1. Mehl,Zucker, Backpulver und Salz in einer Schüssel vermengen.
-2. Vegane Butter in kleinen stücken dazugeben und mit den Händen (oder knethaken)
+2. Vegane Butter in kleinen stücken dazugeben und mit den Händen (oder knethaken) zu einem krümeligem teig verarbeiten.
+3. Pflanzenmilch hinzufügen und kurz zu einem glatten Teig verarbeiten.
