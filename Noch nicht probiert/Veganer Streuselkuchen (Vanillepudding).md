@@ -1,4 +1,4 @@
-#kuchen #Nachtisch
+#Kuchen #Nacht
 Zutaten:
 
 Für den Teig:
