@@ -5,4 +5,13 @@ Zutaten:
 - 1 Knolle Knoblauch
 - 50g Dill
 - 200g Tomatenmark
-- 
+Gewürze: 
+- Salz
+- Zucker
+- Pfeffer
+- Curry
+- Paprikapulver
+- Kreuzkümmel
+- Sumach
+
+Erst 
