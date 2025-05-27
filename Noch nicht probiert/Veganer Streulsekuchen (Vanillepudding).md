@@ -14,4 +14,9 @@ Für die Vanillepudding-Schicht:
 - Pflanzenmilch und Zucker/ nach Packungsanweisung
 
 Für die Streusel:
-- 200g
+- 200g Mehl
+- 100g Zucker
+- 1TL Zimt (optional)
+- 120g vegane Butter (kalt oder leicht weich)
+
+Zubereitung:
