@@ -10,5 +10,8 @@ Für den Teig:
 - 50ml Pflanzenmilch
 
 Für die Vanillepudding-Schicht:
-- 1 Päckchen Vanillepudding-pulver
-- 
+- 1 Päckchen Vanillepuddingpulver
+- Pflanzenmilch und Zucker/ nach Packungsanweisung
+
+Für die Streusel:
+- 200g
