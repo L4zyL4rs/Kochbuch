@@ -21,7 +21,7 @@ Für die Streusel:
 
 Zubereitung:
 1. Mehl,Zucker, Backpulver und Salz in einer Schüssel vermengen.
-2. Vegane Butter in kleinen stücken dazugeben und mit den Händen (oder knethaken) zu einem krümeligem teig verarbeiten.
+2. Vegane Butter in kleinen stücken dazugeben und mit den Händen (oder Knethaken) zu einem krümeligem teig verarbeiten.
 3. Pflanzenmilch hinzufügen und kurz zu einem glatten Teig verkneten. Den Teig auf einem gefetteten oder mit Backpapier ausgelegten 20x30cm Blech ausrollen.
 4. Den Boden mit einer Gabel mehrmals einstechen und bei 180°C Ober-/Unterhitze ca.10 min vorbacken.
-5. Pudding nach
+5. Pudding nach Anweisung
