@@ -8,4 +8,5 @@ Für den Teig:
 - 1 Prise Salz
 - 100g vegane Butter (kalt)
 - 50ml Pflanzenmilch
-- 
+
+Für die vanille
