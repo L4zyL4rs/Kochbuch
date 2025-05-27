@@ -20,3 +20,5 @@ Für die Streusel:
 - 120g vegane Butter (kalt oder leicht weich)
 
 Zubereitung:
+1. Mehl,Zucker, Backpulver und Salz in einer Schüssel vermengen.
+2. Vegane Butter in kleinen stücken dazugeben und mit den Händen (oder knethaken)
