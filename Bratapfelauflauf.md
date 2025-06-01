@@ -5,4 +5,4 @@ Zutaten:
 - Haferflocken
 - Zimt
 (Mengen nach Gefühl)
-Äpfel vierteln oder achtel und in Auflaufform schichten. Zwischen die Schichten Zimt streuen
+Äpfel vierteln oder achteln und in Auflaufform schichten. Zwischen die Schichten großzügig Zimt streuen. 
